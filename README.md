@@ -1,1 +1,7 @@
-![20b2dfd91e2ab542c48285f3dcd7f848](https://github.com/user-attachments/assets/bf3facb3-e465-416d-8583-1b2685dbd8ef)
+![cf84d2be8fa65fd93767553d30a4f1a1 (1)](https://github.com/user-attachments/assets/089c6601-21c2-4a7a-b66a-91afb36aec56)
+
+About For Me
+
+нє/нιм    (16уяѕ) 
+
+You can talk to me whenever you want, just by Whisp.
