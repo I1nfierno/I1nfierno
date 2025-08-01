@@ -5,9 +5,11 @@
 ......𝐀𝐛𝐨𝐮𝐭 𝐅𝐨𝐫 𝐌𝐞.....
 
 
- 𝐡𝑒 / 𝖍𝔦𝔪 (16𝐲𝔯𝐬)
+ 𝐡𝑒 / 𝖍𝔦𝔪 ִ    ִ ִ (16𝐲𝔯𝐬)
+
 
 ..  . 𝐃𝐍𝐈   .annoying or hypersexual people ..
+
 
             
      (You can talk to me whenever you want, just by Whisp.)
@@ -16,6 +18,6 @@
  („• ֊ •„)
  
 切り傷は新鮮な方が気持ちいいです。!!
-━ _
 
 
+![ebaf9ae1160b45fae6b65cea9c28124d](https://github.com/user-attachments/assets/124a2317-d82a-40d8-aba2-2889da997715)
