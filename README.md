@@ -13,7 +13,7 @@ I like rabbits, I play electric guitar and I like Touhou Project
 
    𝖠𝗇𝗇𝗈𝗒𝗂𝗇𝗀 𝗈 𝗁𝗒𝗉𝖾𝗋𝗌𝖾𝗑𝗎𝖺𝗅 𝗉𝖾𝗈𝗉𝗅𝖾
        
-(!!)    ꆭ   ˙▒ㅤ 🎧ᩨ  ִ ࣪ ˖ ࣪    .You can talk to me on Whisp whenever you want.     ⠳     ㅤ꒦
+(!!)    ꆭ   ˙▒ㅤ   🎧ᩨ     ִ ࣪ ˖ ࣪    .You can talk to me on Whisp whenever you want.     ⠳     ㅤ꒦
 
 ⏝ ⏝ ⏝ ♱ ︶ ⏝ ︶ ⏝
 
