@@ -1,7 +1,8 @@
 <img width="640" height="147" alt="Tumblr_l_132914392211638" src="https://github.com/user-attachments/assets/9bd39939-f583-4d51-8d9b-c2ccbc62c4f5" />
 
 
-<img width="1280" height="1280" alt="559 sin título_20251007193253" src="https://github.com/user-attachments/assets/a3e23178-a5e9-4b1b-82f5-4f9b4511a9ae" />
+![0127797666a813e868496b8d02c2951c](https://github.com/user-attachments/assets/baa7977a-d934-4311-be15-a1e0f4515a95)
+
 
 
 
