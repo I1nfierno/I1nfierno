@@ -11,4 +11,4 @@
 　　⠀　　⠀　　⠀⠀﹒　　⠀　　⠀　　⠀　　⠀　　⠀　　⠀　　⠀　⠀　𝖨 𝗅𝗈𝗏𝖾 ₥y̶ 𝗐𝗂𝖿𝖾　⠀ 　⠀◟　⠀ 　╱ 　 　
 ⠀　　　　⠀ 　 
 
-𓈒 𓈒 𓈒 .My soul and mind were shatteredㅤㅤㅤㅤ𓈒◌ ㅤ
+𓈒 𓈒 𓈒 .　   　﹒　　 -My soul and mind were shatteredㅤㅤㅤㅤ𓈒◌ ㅤ
