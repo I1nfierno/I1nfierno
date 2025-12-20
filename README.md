@@ -25,4 +25,4 @@ Set this love aside
 
 That it's going to kill me inside     ׄ      ⠀⠀⠀⠀𓈒      ᯇ     ⠀⠀⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀🩹   ⠀⠀⠀⠀  :     ୧
 
-[![Spotify](https://img.shields.io/badge/Spotify-Escuchar-green?logo=spotify)](https://open.spotify.com/track/3Pur5ZFRlDmKhg67Y7i6Op?si=F1byibaSTP-TnINvRo_wTA)
+[![song](https://img.shields.io/badge/song-like-red?logo=spotify)](https://open.spotify.com/track/3Pur5ZFRlDmKhg67Y7i6Op?si=F1byibaSTP-TnINvRo_wTA)
