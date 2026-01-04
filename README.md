@@ -11,4 +11,5 @@
 　　⠀　　⠀　　⠀⠀﹒　　⠀　　⠀　　⠀　　⠀　　⠀　　⠀　　⠀　⠀　𝖨 𝗅𝗈𝗏𝖾 ₥y̶ 𝗐𝗂𝖿𝖾　⠀ 　⠀◟　⠀ 　╱ 　 　
 ⠀　　　　⠀ 　 
 
-𓈒 𓈒 𓈒 .　   　﹒　　 ![Tumblr_l_41520650674420](https://github.com/user-attachments/assets/4762aceb-6673-4ef9-a130-ff005a9a4f09)
+𓈒 𓈒 𓈒 .　   　﹒　　 !![843322cc5139c8c264aa5df4f0fa4402](https://github.com/user-attachments/assets/f5a56d48-5ba5-4054-963d-e7c400af0b17)
+
