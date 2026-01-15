@@ -12,4 +12,3 @@ no![Tumblr_l_589468728651644](https://github.com/user-attachments/assets/4468b08
 ⠀　　　　⠀ 　 
 
 𓈒 𓈒 𓈒 .　   　﹒　　 !!
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31dzj436ao5tjeq2u6pq4zgryenm&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=false&profanity=false&bar_color=474747)](https://github.com/kittinan/spotify-github-profile)
