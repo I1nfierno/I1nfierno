@@ -1,4 +1,4 @@
-![Tumblr_l_589468728651644](https://github.com/user-attachments/assets/4468b084-bf86-492a-be07-b10cbcbb6912)
+no![Tumblr_l_589468728651644](https://github.com/user-attachments/assets/4468b084-bf86-492a-be07-b10cbcbb6912)
 
 
 
@@ -11,5 +11,5 @@
 　　⠀　　⠀　　⠀⠀﹒　　⠀　　⠀　　⠀　　⠀　　⠀　　⠀　　⠀　⠀　𝖨 𝗅𝗈𝗏𝖾 ₥y̶ 𝗐𝗂𝖿𝖾　⠀ 　⠀◟　⠀ 　╱ 　 　
 ⠀　　　　⠀ 　 
 
-𓈒 𓈒 𓈒 .　   　﹒　　 !![843322cc5139c8c264aa5df4f0fa4402](https://github.com/user-attachments/assets/f5a56d48-5ba5-4054-963d-e7c400af0b17)
-
+𓈒 𓈒 𓈒 .　   　﹒　　 !!
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31dzj436ao5tjeq2u6pq4zgryenm&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=false&profanity=false&bar_color=474747)](https://github.com/kittinan/spotify-github-profile)
