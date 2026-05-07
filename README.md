@@ -2,8 +2,7 @@
 
 
 
-
-![34993](https://github.com/user-attachments/assets/9e65dacd-f03c-4237-bf60-8392ae8172ab)
+<img width="1053" height="800" alt="4380" src="https://github.com/user-attachments/assets/030e86a7-a7ca-4678-9144-89fc32268acc" />
 
 
 
